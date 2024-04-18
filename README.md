@@ -1,4 +1,4 @@
-# Bienvenido a Mi Proyecto de iOS
+# Bienvenido a mi candidatura para el proyecto de Zara!
 
 ## Sobre Mí
 
